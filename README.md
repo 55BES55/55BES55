@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @55BES55
 - 👀 I’m interested in IT, Physics, Sports (especially martial arts) and music.
-- 🌱 I’m currently learning Python, Piano, Driving.
+- 🌱 I’m currently learning Python and Piano.
 - 💞️ I’m looking to collaborate on ... ???
 - 📫 How to reach me Bekiremresen04@gmail.com
 - 😄 Pronouns: He/Him
